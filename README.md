@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 😄 Pronouns: She/her
-- ⚡ Fun fact: I am a first year student
+- ⚡ Fun fact: I am a second year student
   
 
 <!---
