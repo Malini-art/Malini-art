@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning cybersecurity
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
-- 😄 Pronouns: She/hee
+- 😄 Pronouns: She/her
 - ⚡ Fun fact: I am a first year student
   
 
